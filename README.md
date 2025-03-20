@@ -9,7 +9,7 @@
 - 💪 Muscles: DevOps – The automation powerhouse that accelerates everything!
 - 📊 Nervous System: Data Engineering & Science – Processing and analyzing every critical signal!
 - 🎓 Profession: Banker | Financial Institute (World 2nd Largest Bank)
-- ❤️ Passion: Medical – Exploring the frontiers of Deep Sleep & Quantum-Enabled Neurogenetic Medicine!
+- ❤️ Passion: Medical & Cosmos – Exploring the frontiers of Cosmos Oceans, Deep Sleep & Quantum-Enabled Neurogenetic Medicine!
 
 Reach me via
   - Gmail: gsskhokhar7@gmail.com
